@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @phrandsisgo
-- 👀 I'm currently 27 years old.
+- 👀 I'm currently 28 years old.
 - I am from switzerland and interested in (human) languages. currently learning russian and french
 - 📫 If you want to contact me the best way is to contact me over discord: phrandsisgo#0414
 
